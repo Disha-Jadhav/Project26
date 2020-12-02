@@ -1,0 +1,1 @@
+This is a recipe for making coffee for 1 person only.
